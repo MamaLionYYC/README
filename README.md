@@ -1,4 +1,4 @@
 # ABOUT ME
 ## MamaLion's Personal Repo 🎶
-Hi There 🌊
-### I still love my VIC20
+### Just a kid who loved coding her VIC20
+People person. Artist and Maker. Super green Developer. Gardener.
